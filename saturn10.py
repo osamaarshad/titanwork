@@ -1,0 +1,3 @@
+telesot
+pluto
+bigstar
